@@ -1,0 +1,2 @@
+# -engal
+Bilmem yapmak istedim 
